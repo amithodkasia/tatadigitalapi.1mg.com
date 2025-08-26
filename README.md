@@ -1,0 +1,1 @@
+# tatadigitalapi.1mg.com
